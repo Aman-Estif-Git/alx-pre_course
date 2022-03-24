@@ -1,1 +1,1 @@
-Alx is the best!
+Alx is best!
